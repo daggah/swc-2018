@@ -2,5 +2,5 @@
 * Note: There is no replacement for good ingredients
 
 ## Ingredients:
-Avocados
-
+2 Avocados
+2 teaspoons of salt
