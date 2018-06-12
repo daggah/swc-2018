@@ -6,3 +6,4 @@
 - 2 teaspoons of salt
 - lots of onions
 - lemon juice
+- spice is nice
